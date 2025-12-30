@@ -1,0 +1,1 @@
+# assingmnet-individu-articulate
